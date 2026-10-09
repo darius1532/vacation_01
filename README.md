@@ -9,3 +9,8 @@ Hello!
 This time is mobile version.
 I'm just trying to see if it still works on my phone.
 Peace.
+
+Hello!
+This time, is from obsidian.
+I use ==git clone command== to edit this repo live.
+I think the change will be updated every 5 minutes.
