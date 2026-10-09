@@ -1,4 +1,5 @@
-# vacation_01
+# vacation\_01
+
 Day 01.
 Hello!
 This is desktop version.
@@ -14,3 +15,10 @@ Hello!
 This time, is from obsidian.
 I use ==git clone command== to edit this repo live.
 I think the change will be updated every 5 minutes.
+
+Hello!
+
+This time is file explorer version.
+
+I have to use the notepad thing to edit this README.md.
+
