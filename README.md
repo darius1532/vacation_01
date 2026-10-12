@@ -22,3 +22,14 @@ This time is file explorer version.
 
 I have to use the notepad thing to edit this README.md.
 
+Day 03
+
+Forgot to add anything yesterday
+
+On vacation right now with ma fam
+
+So far so good
+
+But already miss learning new things
+
+Yep I think thats the update for today
