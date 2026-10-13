@@ -32,4 +32,16 @@ So far so good
 
 But already miss learning new things
 
-Yep I think thats the update for today
+Yep I think thats the update for today.
+
+Day 04 
+
+Lots of beatuiful places here
+
+Lots of Yacht
+
+W driver
+
+W car
+
+The sky looks really nice
