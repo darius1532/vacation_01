@@ -45,3 +45,11 @@ W driver
 W car
 
 The sky looks really nice
+
+Day 05
+
+I got fever man 
+
+Didn't join my parents today travelling
+
+Yes, Im tired like really really tired
