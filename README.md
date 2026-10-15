@@ -52,4 +52,11 @@ I got fever man
 
 Didn't join my parents today travelling
 
-Yes, Im tired like really really tired
+Yes, Im tired like really really tired.
+
+Day 06
+
+Still fever, but better.
+Hope it doesn't get any worse.
+On the way to chengdu now
+
