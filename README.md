@@ -60,3 +60,8 @@ Still fever, but better.
 Hope it doesn't get any worse.
 On the way to chengdu now
 
+Day 07 
+
+feeling better now
+let's gooo
+
