@@ -65,3 +65,9 @@ Day 07
 feeling better now
 let's gooo
 
+Day 08
+
+Feel great
+otw to panda place
+Peace
+
