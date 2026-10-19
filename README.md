@@ -72,3 +72,8 @@ otw to panda place
 Peace
 
 uhhhh
+
+Day 09
+
+the real hustle start tomorrow
+i will try to explore more about this github thing
