@@ -77,3 +77,9 @@ Day 09
 
 the real hustle start tomorrow
 i will try to explore more about this github thing
+
+Day 10
+
+Yep
+first day sem 2 is good
+bye
