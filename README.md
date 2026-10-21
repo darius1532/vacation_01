@@ -83,3 +83,9 @@ Day 10
 Yep
 first day sem 2 is good
 bye
+
+Day 11
+
+Just woke up
+Played badminton
+Great day
