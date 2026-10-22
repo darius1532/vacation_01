@@ -89,3 +89,7 @@ Day 11
 Just woke up
 Played badminton
 Great day
+
+Day 12
+
+Idk what to say really
